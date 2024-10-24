@@ -1,6 +1,10 @@
 👩‍🎓 Reddy Sushma Sri
+
 📍 Location : Visakhapatnam , Andhra Pradesh 
-📞 Phone : 8179524919 💌 Email : sushmasrireddy745@gmail.com
+
+📞 Phone : 8179524919
+
+💌 Email : sushmasrireddy745@gmail.com
 
 ---------------------------------------------------------------------------------------------
 
